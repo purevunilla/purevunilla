@@ -6,6 +6,7 @@
 
 <sub> I wish I was a better father.
 
+I don't mind any ships with 007n7 unless it's the ones with the kids, please never int.
 
 [main github](https://github.com/marikinonline4) 
 
