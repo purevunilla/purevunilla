@@ -1,9 +1,10 @@
 <h5 align="center"
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&pause=1000&color=2458F7&center=true&vCenter=true&multiline=true&width=435&lines=+i+may+have+lost%2C+but+you+have+also;+lost+all+your+money+LOL)](https://git.io/typing-svg)
+![image](https://github.com/user-attachments/assets/2137f59e-8958-4699-85ba-0991912869fd)
 
 
-<sub> you were a friend, and I loathed you.
+
+<sub> I wish I was a better father.
 
 
 [main github](https://github.com/marikinonline4) 
@@ -12,4 +13,4 @@
 
 [sign strawpage](https://00707.straw.page)
 
-[rentry is still reworked](https://rentry.co/online404)
+
