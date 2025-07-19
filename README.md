@@ -1,6 +1,6 @@
 <h5 align="center"
 
-<img src="https://i.pinimg.com/736x/65/f4/9b/65f49bcea08ac84e4c0da09a0b93f4df.jpg" />
+<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/f707bfad-c8df-48c3-98e5-564b6b41b45b" />
 
 
 <sub> If I was really a god, then I was the most incompotent god in the world. 
