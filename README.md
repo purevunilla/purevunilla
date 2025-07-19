@@ -1,10 +1,11 @@
 <h5 align="center"
 
-<img width="294" height="39" alt="image" src="https://github.com/user-attachments/assets/e6da53de-bc4a-4b1f-b2a1-8c7bc05c1884" />
+<img src="https://i.pinimg.com/736x/65/f4/9b/65f49bcea08ac84e4c0da09a0b93f4df.jpg" />
 
 
+<sub> If I was really a god, then I was the most incompotent god in the world. 
 
-<sub> If I was really a god, then I was the most incompotent god in the world. The most helpless god in the world who knew everything but couldn't explain anything.
+<sub> The most helpless god in the world who knew everything but couldn't explain anything.
 
 
 [main github](https://github.com/marikinonline4) 
