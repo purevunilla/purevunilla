@@ -1,12 +1,11 @@
 <h5 align="center"
 
-![image](https://github.com/user-attachments/assets/2137f59e-8958-4699-85ba-0991912869fd)
+<img width="294" height="39" alt="image" src="https://github.com/user-attachments/assets/e6da53de-bc4a-4b1f-b2a1-8c7bc05c1884" />
 
 
 
-<sub> I wish I was a better father.
+<sub> If I was really a god, then I was the most incompotent god in the world. The most helpless god in the world who knew everything but couldn't explain anything.
 
-I don't mind any ships with 007n7 unless it's the ones with the kids, please never int.
 
 [main github](https://github.com/marikinonline4) 
 
